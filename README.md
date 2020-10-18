@@ -1,5 +1,5 @@
 # Mumbo Jumbo
-#### Mumbo Jumbo
+### Mumbo Jumbo
 seeks to deconstruct modern civilization's focus on structure and rigidity by hijacking its own myths and secrets against itself. In its place, Reed promotes a new order founded on freedom, expressiveness, and joy, arguing that modern order and structure is a corruption of these ideals. (thesis statement here)
 
 ## Historical Allusions
