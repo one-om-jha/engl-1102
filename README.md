@@ -54,18 +54,18 @@ Reed utilizes historical allusion, language, religion, and multimodality in his 
 
 ## Works Cited
 
-Fiedler, Bernhard. “Riverboats on the Nile.” Wikimedia, Wikimedia Commons, 1856, https://commons.wikimedia.org/wiki/File:Bernhard_Fiedler_-_Riverboats_on_the_Nile.jpg. Accessed 19 October 2020.
+- Fiedler, Bernhard. “Riverboats on the Nile.” Wikimedia, Wikimedia Commons, 1856, https://commons.wikimedia.org/wiki/File:Bernhard_Fiedler_-_Riverboats_on_the_Nile.jpg. Accessed 19 October 2020.
 
-Levy, Michael. “...The Oldest Known Melody c.1400 BC!.” YouTube, 13 May 2009, https://www.youtube.com/watch?v=DBhB9gRnIHE.
+- Levy, Michael. “...The Oldest Known Melody c.1400 BC!.” YouTube, 13 May 2009, https://www.youtube.com/watch?v=DBhB9gRnIHE.
 
-Lonofi. “Nile Valley in Ancient Egypt | Relaxing Music & Nature Sounds (Remastered Version).” YouTube, 2019, https://www.youtube.com/watch?v=8cFsSdCTAJQ.
+- Lonofi. “Nile Valley in Ancient Egypt | Relaxing Music & Nature Sounds (Remastered Version).” YouTube, 2019, https://www.youtube.com/watch?v=8cFsSdCTAJQ.
 
-Open Road Media. “Meet Ishmael Reed.” YouTube, 2012, https://www.youtube.com/watch?v=KyctiAg5rWU.
+- Open Road Media. “Meet Ishmael Reed.” YouTube, 2012, https://www.youtube.com/watch?v=KyctiAg5rWU.
 
-Reed, Ishmael. Mumbo Jumbo. New York, Simon & Schuster, 1972.
+- Reed, Ishmael. Mumbo Jumbo. New York, Simon & Schuster, 1972.
 
-“The Story of Osiris, Isis and Horus: The Egyptian Myth of Creation.” Https://Www.laits.utexas.edu/Cairo, 2002, www.laits.utexas.edu/cairo/teachers/osiris.pdf. 
+- “The Story of Osiris, Isis and Horus: The Egyptian Myth of Creation.” https://Www.laits.utexas.edu/Cairo, 2002, www.laits.utexas.edu/cairo/teachers/osiris.pdf. 
 
-Stella, Jacques. “The Finding of Moses.” Wikimedia, Wikimedia Commons, n.d., https://commons.wikimedia.org/wiki/File:Jacques_Stella_-_The_Finding_of_Moses.jpg. Accessed 19 October 2020.
+- Stella, Jacques. “The Finding of Moses.” Wikimedia, Wikimedia Commons, n.d., https://commons.wikimedia.org/wiki/File:Jacques_Stella_-_The_Finding_of_Moses.jpg. Accessed 19 October 2020.
 
-Styka, Adam. “A Young Waterbearer Before The Temple Of Philae, Egypt.” Artvee, Artvee, n.d., https://artvee.com/dl/a-young-waterbearer-before-the-temple-of-philae-egypt. Accessed 19 October 2020.
+- Styka, Adam. “A Young Waterbearer Before The Temple Of Philae, Egypt.” Artvee, Artvee, n.d., https://artvee.com/dl/a-young-waterbearer-before-the-temple-of-philae-egypt. Accessed 19 October 2020.
