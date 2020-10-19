@@ -53,7 +53,7 @@ Reed utilizes historical allusion, language, religion, and multimodality in his 
 ---
 
 ## Works Cited
-
+<div class="works-cited">
 Fiedler, Bernhard. “Riverboats on the Nile.” Wikimedia, Wikimedia Commons, 1856, https://commons.wikimedia.org/wiki/File:Bernhard_Fiedler_-_Riverboats_on_the_Nile.jpg. Accessed 19 October 2020.
 
 Levy, Michael. “...The Oldest Known Melody c.1400 BC!.” YouTube, 13 May 2009, https://www.youtube.com/watch?v=DBhB9gRnIHE.
@@ -67,3 +67,4 @@ Reed, Ishmael. Mumbo Jumbo. New York, Simon & Schuster, 1972.
 Stella, Jacques. “The Finding of Moses.” Wikimedia, Wikimedia Commons, n.d., https://commons.wikimedia.org/wiki/File:Jacques_Stella_-_The_Finding_of_Moses.jpg. Accessed 19 October 2020.
 
 Styka, Adam. “A Young Waterbearer Before The Temple Of Philae, Egypt.” Artvee, Artvee, n.d., https://artvee.com/dl/a-young-waterbearer-before-the-temple-of-philae-egypt. Accessed 19 October 2020.
+</div>
