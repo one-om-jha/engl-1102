@@ -1,5 +1,5 @@
-## Mumbo Jumbo
-Mumbo jumbo seeks to deconstruct modern western civilization's focus on structure and rigidity by portraying atonist society as claustrophobic, limiting mobility and freedom in all aspects of life including language and art. Reed rebels against this status quo by promoting a new order founded on freedom, expressiveness, and joy—arguing that our society's false priorities are a corruption of these ideals which leads to discrimination and suffering.
+### Mumbo Jumbo
+seeks to deconstruct modern western civilization's focus on structure and rigidity by portraying atonist society as claustrophobic, limiting mobility and freedom in all aspects of life including language and art. Reed rebels against this status quo by promoting a new order founded on freedom, expressiveness, and joy—arguing that our society's false priorities are a corruption of these ideals which leads to discrimination and suffering.
 
 ---
 
