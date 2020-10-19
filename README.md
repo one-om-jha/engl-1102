@@ -44,7 +44,7 @@ By illustrating the connections between religions like this, Reed is highlightin
 ## Postmodernism and Multimodality
 Reed confuses the reader with his strange formatting to make us rethink our previously held beliefs. For example, Reed often includes wrong grammar and formatting like using number symbols instead of spelling the number out. Reed’s disregard for conventions of writing makes the reader question the purpose of literary structures. Our language is so western centric, and Reed’s formatting serves as a protest against that. Reed quite literally breaks structures of modern languages which parallels how induvial should rise up and break unjust structures in society. Mumbo Jumbo is very much a postmodern text in the way it detaches itself with from world. It pokes fun at the absurd ideas that we hold in society.  The way Reed mocks language, religion, and even civilization is postmodern because it seems he never takes anything seriously. 
 
-https://youtu.be/KyctiAg5rWU
+<iframe width="1020" height="565" src="https://www.youtube.com/embed//KyctiAg5rWU "> </iframe>
 
 The book breaks many traditional literature structures in an effort to disorient the reader. The book opens with the first chapter and the title only appears later, similar to a movie opening scene. The novel is filled with oddly formatted text, diagrams, and images. Reed is very intentional with his actions to break structures because it forces the reader to have an open mind when understanding the unusual aspects of the novel. 
 
