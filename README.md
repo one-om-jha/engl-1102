@@ -1,8 +1,6 @@
 ### Mumbo Jumbo
 seeks to deconstruct modern western civilization's focus on structure and rigidity by portraying Atonist society as claustrophobic, limiting mobility and freedom in all aspects of life including language and art. Reed rebels against this status quo by promoting a new order founded on freedom, expressiveness, and joy—arguing that our society's false priorities are a corruption of these ideals, which leads to discrimination and suffering.
 
-https://youtu.be/DBhB9gRnIHE
-
 ---
 
 ## Historical Allusions
@@ -30,7 +28,6 @@ There is “crass” language, like when Set “called [Nepthys] a bitch.” (Re
 
 ## Interconnectedness of Religion
 
-https://www.youtube.com/watch?v=8cFsSdCTAJQ.
 ![Temple](https://artvee.com/saconud/sftb/200012fg.jpg)
 
 The God Myth is actually a story of many gods and many myths tied together, illustrating the progression and connectedness or religion. Reed introduces us to “The Work” (Reed 138), the foundation of Jes Grew and Occultism, the power of the Osirian art, as something that came from ancient African religion, learned by Osiris at the university of Nysa. The Work spread across Egypt and Greece, and much of the world as Osiris traveled. However, Occultism was eventually defeated by Atonism, fueled by Christianity. Atonism has its own power like the Osirians did. Papa LaBas’ tale shows us that this strength and power actually originates from The Work, but a corrupted version of it. This progression is shown below:
