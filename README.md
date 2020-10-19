@@ -66,8 +66,8 @@ Reed utilizes historical allusion, language, religion, and multimodality in his 
 
 - Reed, Ishmael. *Mumbo Jumbo*. New York, Simon & Schuster, 1972.
 
-- “The Story of Osiris, Isis and Horus: The Egyptian Myth of Creation.” https://Www.laits.utexas.edu/Cairo, 2002, www.laits.utexas.edu/cairo/teachers/osiris.pdf. 
-
 - Stella, Jacques. “The Finding of Moses.” Wikimedia, Wikimedia Commons, n.d., https://commons.wikimedia.org/wiki/File:Jacques_Stella_-_The_Finding_of_Moses.jpg. Accessed 19 October 2020.
 
 - Styka, Adam. “A Young Waterbearer Before The Temple Of Philae, Egypt.” Artvee, Artvee, n.d., https://artvee.com/dl/a-young-waterbearer-before-the-temple-of-philae-egypt. Accessed 19 October 2020.
+
+- “The Story of Osiris, Isis and Horus: The Egyptian Myth of Creation.” www.laits.utexas.edu/Cairo, 2002, https://www.laits.utexas.edu/cairo/teachers/osiris.pdf. 
